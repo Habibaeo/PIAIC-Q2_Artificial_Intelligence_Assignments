@@ -1,0 +1,1 @@
+# PIAIC-Q2_Artificial_Intelligence_Assignments
